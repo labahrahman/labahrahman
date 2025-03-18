@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning Designing+Web Technology
 - 👯 I’m looking to collaborate & help on Web 🤔
 - 💬 Ask me about Design
-- 📫 How to reach me: labahrahman99@gmail.com
+- 📫 How to reach me: labahrahman@gmail.com
 - 😄 Pronouns: La'Bah
 - ⚡ Fun fact: Sleepy :d
 
